@@ -1,3 +1,3 @@
-### Professor e coordenador pedagógico na Faculdade Infnet.
+Um carioca metido a artista e decididamente flamenguista, um dia vou por uma aquarela minha aqui 
 
-Um carioca metido a artista e decididamente flamenguista.
+Professor e coordenador pedagógico na Faculdade Infnet.
